@@ -1,4 +1,3 @@
-👋 Hey, I’m @0xPASTE
-
+dbaa mofos
 
 
